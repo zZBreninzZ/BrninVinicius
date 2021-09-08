@@ -1,0 +1,2 @@
+# BrninVinicius
+• Carreira em evolução na área TI, com habilidade para atuar no auxílio em rotinas do setor, contato com clientes e fornecedores, organização do ambiente de trabalho e nas demais atividades diárias de uma empresa, visando à qualidade do serviço prestado.   • Técnico de informática – Senai – Concluído 01/2018 a 08/2019  Conteúdo: Gestão de Projetos, Programação (Java) Conhecimento em Pacote Office, Desenvolvimento Web(HTML), Internet, Formatação de Computadores. 
